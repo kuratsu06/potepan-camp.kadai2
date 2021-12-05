@@ -1,1 +1,0 @@
-＃potepan-camp.kadai2
